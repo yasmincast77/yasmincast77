@@ -1,6 +1,6 @@
 - 🪬 oii meu nome é @yasmincast77
 - 🌙 I’m interested in arthur ...
-- 🌊 guaratuba / pr 
+- 🌊 pr 
 
 
 <!---
